@@ -1,0 +1,2 @@
+# TC1002600_Equipo3
+Semana Tec TC1002600
